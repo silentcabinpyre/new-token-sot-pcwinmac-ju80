@@ -1,4 +1,4 @@
-# 
+# Ultimato new token sniper bot fluxo de trabalho para Mac OS | Elite new token sniper bot fluxo de trabalho para PC Windows. Com painéis personalizados e extração MEV — otimizado para máximo desempeño en cada plataforma.
 
 
 
